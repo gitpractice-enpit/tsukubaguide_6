@@ -1,2 +1,2 @@
 # tsukubaguide_6
-kimura
+わけわからん
